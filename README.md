@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @melodiejean
-- 👀 I’m interested in humans, the internet, creativity, design & usibility
+- 👀 I’m interested in humans, the internet, creativity, design & usability
 - 🌱 I’m currently learning web development and UX design
 - 💞️ I’m looking to collaborate on anything!!
 - 📫 How to reach me: melodie.jean@live.com
